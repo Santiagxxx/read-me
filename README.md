@@ -49,8 +49,8 @@ All projects are functional and available for review.
 Feel free to reach out if you have questions, suggestions, or opportunities:
 
 **Emerson Reyes**  
-📧 Email: reyesemerson643@gmail.com  
-💻 GitHub: [@152004E](https://github.com/152004E)
+📧 Email: santipuentes2017@gmail.com 
+💻 GitHub: (https://github.com/Santiagxxx)
 
 ---
 
